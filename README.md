@@ -33,6 +33,7 @@ Kho lưu trữ tài liệu mở tổng hợp quy chuẩn kỹ thuật, phương 
 - Kênh video YouTube: [Kênh Trải Nghiệm Thực Tế Game Bài Online 247](https://www.youtube.com/channel/UCuXPoA3AWjycEqew6HPt6cg)
 - Kênh tin tức X (Twitter): [Bản tin cập nhật Game Bài Online 247 (@gbonline247)](https://x.com/gbonline247)
 - Bảng tư liệu Pinterest: [Bộ sưu tập Infographic Game Bài Đổi Thưởng 247](https://www.pinterest.com/gamebaidoithuongonlinelive/)
+- Cổng thông tin Google Sites: [Game Bài Đổi Thưởng Online Live trên Google Sites](https://sites.google.com/view/gamebaidoithuongonlinelive)
 
 ---
 *Tài liệu được cập nhật và giám sát định kỳ bởi tác giả A Báo (abaoreview) - Chuyên gia kiểm định độc lập tại Game Bài Online 247.*
